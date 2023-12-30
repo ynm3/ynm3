@@ -1,4 +1,4 @@
-It's a pleasure to see you here reader ! Alright, onto the details.
+It's a pleasure to see you here reader ! Alright, onto the details. ^^
 
 ✧- 👋 Hi, I’m @ynm3 [Turo]
 
@@ -95,4 +95,6 @@ It's a pleasure to see you here reader ! Alright, onto the details.
 ✧- And many more, please don't be afraid to ask!
 
 That's all really. I hope we get along well! [or not.it depends on you,really..All I know that I'm very easy to talk with to!]
-{📌PLES [please] BARE IN MIND: IN PONY TOWN I USUALLY GO ON OFFLINE MODE❗❗[I go on online mode for a special occasion(sometimes/or just my trip)}
+{📌PLES [please] BARE IN MIND: IN PONY TOWN I USUALLY GO ON OFFLINE MODE❗❗[I go on online mode for a special occasion(sometimes/or if just feel like it)}
+
+"Also Have a nice Day/Night/Noon/Morning ! :D"
