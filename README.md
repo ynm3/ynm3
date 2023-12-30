@@ -12,7 +12,7 @@ It's a pleasure to see you here reader ! Alright, onto the details. ^^
 
 ✧- 🌟 I love willow 🐇 !!
 
-✧- ☺ "Sometimes" I don't really know how or what to feel anymore :D
+✧- 🙂 "Sometimes" I don't really know how or what to feel anymore :D
 
 ✧- 🤯 "Erasers slowly dies because of your small mistakes"
 
