@@ -20,8 +20,6 @@ It's a pleasure to see you here reader ! Alright, onto the details. ^^
 
 • I'm very random at times, hope you don't mind.
 
-• I have my friend requests off and will not accept any unless I send one to you instead
-
 • If I'm afk ples [please] DO whisper me! because that's the only way I'll know you dropped by :>
 
 '☄-',_"=.'.some of Fandoms/Things I'm in:
