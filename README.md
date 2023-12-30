@@ -6,4 +6,4 @@
 ✧- 🌟 I love willow 🐇 !!
 ✧- 🔥 "Sometimes" I don't know how to feel :D
 ✧- 🤯 "Erasers slowly dies because of your small mistakes"
-{📌PLES [please] BARE IN MIND I USUALLY GO ON OFFLINE MODE❗❗[I go on online mode for a special ocasion(sometimes[OR to prove someone/my trip)}
+{📌PLES [please] BARE IN MIND: IN PONY TOWN I USUALLY GO ON OFFLINE MODE❗❗[I go on online mode for a special ocasion(sometimes[OR to prove someone/my trip)}
