@@ -1,10 +1,10 @@
-It's a pleasure to see you here. Alright, onto the details.
+It's a pleasure to see you here reader ! Alright, onto the details.
 
-✧- 👋 Hi, I’m @ynm3 [Toru]
+✧- 👋 Hi, I’m @ynm3 [Turo]
 
 ✧- 👀 I’m interested in ... "Arts/music/baking"
 
-✧- 🌱 I’m currently learning ... "Animal,Human Body Postures/More Color Theory/Value Scales/anatomy/gravity etc."
+✧- 🌱 I’m currently learning ... "{Animal,Human} Body Postures/More Color Theory/Value Scales/anatomy/gravity etc."
 
 ✧- ☄ I main Childe[?] in Genshin Impact
 
@@ -12,17 +12,17 @@ It's a pleasure to see you here. Alright, onto the details.
 
 ✧- 🌟 I love willow 🐇 !!
 
-✧- 🔥 "Sometimes" I don't know how to feel :D
+✧- ☺ "Sometimes" I don't really know how or what to feel anymore :D
 
 ✧- 🤯 "Erasers slowly dies because of your small mistakes"
 
 📌A little bit of stuff that you need to know about❗❗: 
 
-• I am very random at times, hope you don't mind.
+• I'm very random at times, hope you don't mind.
 
 • I have my friend requests off and will not accept any unless I send one to you instead
 
-• If I am afk DO whisper me because that's the only way I'll know you dropped by :>
+• If I'm afk ples [please] DO whisper me! because that's the only way I'll know you dropped by :>
 
 ☄-_=some of Fandoms/Things I'm in:
 
@@ -34,11 +34,11 @@ It's a pleasure to see you here. Alright, onto the details.
 
 ✧- Cookie run:kingdom [not much]
 
-✧-Bungo stray dogs
+✧- Bungo stray dogs
 
-✧-Hello Kitty
+✧- Hello Kitty
 
-✧-Toilet Boundery Hanako-kun
+✧- Toilet Boundery Hanako-kun
 
 ✧- Mlp
 
@@ -46,9 +46,11 @@ It's a pleasure to see you here. Alright, onto the details.
 
 ✧- Bendy ink
 
-✧- Andy's apple farm
+✧- Andy's apple farm[not into much]
 
-✧- The office[not much]
+✧- Backrooms.
+
+✧- The office[not into much]
 
 ✧- Minecraft
 
@@ -60,9 +62,9 @@ It's a pleasure to see you here. Alright, onto the details.
 
 ✧- Pucca
 
-✧- Originsmp [not anymore]
+✧- Originsmp [not into it anymore]
 
-✧- Quackitysmp[not anymore]
+✧- Quackitysmp [not into it anymore]
 
 ✧- Doki Doki Literature Club
 
@@ -80,17 +82,17 @@ It's a pleasure to see you here. Alright, onto the details.
 
 ✧- Popee the performer
 
-✧- Studio Ghibli ⌭
+✧- Studio Ghibli 
 
 ✧- Regular show[kinda forgot some of it]
 
 ✧-ENA
 
-✧-Project sekai
+✧-Project sekai[not into much]
 
 ✧- FNAF [Five Nights At Freddy's]
 
-✧- And many more, please, don't be afraid to ask!
+✧- And many more, please don't be afraid to ask!
 
-That's all really. I hope we get along well!
+That's all really. I hope we get along well! [or not.it depends on you,really..All I know that I'm very easy to talk with to!]
 {📌PLES [please] BARE IN MIND: IN PONY TOWN I USUALLY GO ON OFFLINE MODE❗❗[I go on online mode for a special occasion(sometimes/or just my trip)}
