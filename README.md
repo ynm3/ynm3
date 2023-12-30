@@ -6,7 +6,7 @@ It's a pleasure to see you here reader ! Alright, onto the details.
 
 ✧- 🌱 I’m currently learning ... "{Animal,Human} Body Postures/More Color Theory/Value Scales/anatomy/gravity etc."
 
-✧- ☄ I main Childe[?] in Genshin Impact
+✧- ☄ I main Childe[?] in Genshin Impact 
 
 ✧- 🏠 On "Pony Town" Sometimes I'm at the doc or at the Genshin Impact area [usually near at the Doc]
 
@@ -24,7 +24,7 @@ It's a pleasure to see you here reader ! Alright, onto the details.
 
 • If I'm afk ples [please] DO whisper me! because that's the only way I'll know you dropped by :>
 
-☄-_=some of Fandoms/Things I'm in:
+'☄-',_"=.'.some of Fandoms/Things I'm in:
 
 ✧-  Genshin Impact
 
