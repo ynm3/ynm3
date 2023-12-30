@@ -14,13 +14,13 @@ It's a pleasure to see you here reader ! Alright, onto the details. ^^
 
 ✧- 🙂 "Sometimes" I don't really know how or what to feel anymore :D
 
-✧- 🤯 "Erasers slowly dies because of your small mistakes"
+✧- 🤯 SHOWER THOUGHTS:"Erasers slowly dies because of your small mistakes"
 
 📌A little bit of stuff that you need to know about❗❗: 
 
 • I'm very random at times, hope you don't mind.
 
-• If I'm afk ples [please] DO whisper me! because that's the only way I'll know you dropped by :>
+• I like willow :>
 
 '☄-',_"=.'.some of Fandoms/Things I'm in:
 
@@ -94,7 +94,7 @@ It's a pleasure to see you here reader ! Alright, onto the details. ^^
 
 ✧- And many more, please don't be afraid to ask!
 
-That's all really. I hope we get along well! [or not.it depends on you,really..All I know that I'm very easy to talk with to!]
+That's all really. I hope we get along well! [or not.it depends on you,really..All I know that I'm very easy to talk with to!
 {📌PLES [please] BARE IN MIND: IN PONY TOWN I USUALLY GO ON OFFLINE MODE❗❗[I go on online mode for a special occasion(sometimes/or if just feel like it)}
 
 "Also Have a nice Day/Night/Noon/Morning ! :D"
