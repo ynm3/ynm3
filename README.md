@@ -1,6 +1,8 @@
-It's a pleasure to see you here reader ! Alright, onto the details. ^^
+It's a pleasure to see you here reader ! I don't know why you're really here but if you're here to know me a little bit uhm you can just read this I guess. ^^
 
 ✧- 👋 Hi, I’m @ynm3 [Turo]
+
+{The story behind the name of "Yume": It was meant to be like "you and me" because I don't know why not? but when i heard "Yume" in japanese it means dream so like I though was cute and also its also similar to "Yema", It's a sweet candy from philippines and I also find that very cute, so yeh :D }
 
 ✧- 👀 I’m interested in ... "Arts/music/baking"
 
@@ -14,7 +16,7 @@ It's a pleasure to see you here reader ! Alright, onto the details. ^^
 
 ✧- 🙂 "Sometimes" I don't really know how or what to feel anymore :D
 
-✧- 🤯 SHOWER THOUGHTS:"Erasers slowly dies because of your small mistakes"
+✧- 🤯 SHOWER THOUGHTS:"Erasers slowly dies because of your small mistakes" [Tbh this is kinda random :P ]
 
 📌A little bit of stuff that you need to know about❗❗: 
 
@@ -48,7 +50,7 @@ It's a pleasure to see you here reader ! Alright, onto the details. ^^
 
 ✧- Backrooms.
 
-✧- The office[not into much]
+✧- The office[In progress]
 
 ✧- Minecraft
 
@@ -84,17 +86,24 @@ It's a pleasure to see you here reader ! Alright, onto the details. ^^
 
 ✧- Regular show[kinda forgot some of it]
 
-✧-Evade
+✧- Evade
 
-✧-ENA
+✧- ENA
 
-✧-Project sekai[not into much]
+✧- Phighting [In progress] 
+
+✧- Project sekai[not into much]
 
 ✧- FNAF [Five Nights At Freddy's]
 
-✧- And many more, please don't be afraid to ask!
+✧- Don't Hug Me I'm Scared. [DHMIS]
 
-That's all really. I hope we get along well! [or not.it depends on you,really..All I know that I'm very easy to talk with to!
+✧-  And many more, please don't be afraid to ask!
+
+That's all really. I hope we get along well! [or not.it depends on you,really..All I know that I'm very easy to talk with to!]
 {📌PLES [please] BARE IN MIND: IN PONY TOWN I USUALLY GO ON OFFLINE MODE❗❗[I go on online mode for a special occasion(sometimes/or if just feel like it)}
 
+{Fun fact: I made this account purposely because I thought it was fun}
+
 "Also Have a nice Day/Night/Noon/Morning ! :D"
+
